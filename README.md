@@ -7,8 +7,6 @@
 
 <div align="center">
 out of everything you've done，
-    
-i am your greatest creation >ᴗ<
 <div align="center">
     
 <div align="center">
@@ -17,6 +15,16 @@ i am your greatest creation >ᴗ<
 
 <div align="center">
 
+<div align="center">
+i am your greatest creation >ᴗ<
+<div align="center">
+⠀
+<div align="center">
+ 
+───
+
+<div align="center">
+⠀
 <div align="center">
 c+h freelyֶָ֢ ⠀only if i'm 
     
