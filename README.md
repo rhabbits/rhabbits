@@ -20,9 +20,7 @@ i am your greatest creation >ᴗ<
 <div align="center">
 ⠀
 <div align="center">
- 
 ───
-
 <div align="center">
 ⠀
 <div align="center">
