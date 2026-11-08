@@ -40,3 +40,6 @@ i like my bffie @funfettis and
     
 i think she's really cool + kind
 <div align="center">
+
+but she's also a hater and made fun of me for not knowing how github works, could you believe that?
+![](https://i.postimg.cc/wB88PqZK/Screenshot-2026-11-08-1-16-01-PM.png)
