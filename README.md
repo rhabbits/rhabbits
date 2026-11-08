@@ -43,3 +43,4 @@ i think she's really cool + kind
 
 but she's also a hater and made fun of me for not knowing how github works, could you believe that?
 ![](https://i.postimg.cc/wB88PqZK/Screenshot-2026-11-08-1-16-01-PM.png)
+![](https://i.postimg.cc/vT6CXChT/Untitled2249-20261108135759.webp) here is when i didn't know how to put an image.
