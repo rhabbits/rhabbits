@@ -17,5 +17,5 @@ before u interact, please read my rentry!!!
 <div align="center">
 don't copy / take inspo from my ponies，
  
-c+h freely unless i'm on 'dni' or with sm1𓈒
+c+h freely unless i'm on 'dni' & with sm1𓈒
 <div align="center">
