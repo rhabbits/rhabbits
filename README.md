@@ -19,7 +19,7 @@ do not copy or take inspo⠀꒱꒱⠀c+h freely ☁︎𓈒
 
 <div align="center">
  
-i love my bffies [lacie](https://github.com/funfettis) and [miyu](https://rentry.co/continues)
+i love my bffies [lacie](https://github.com/funfettis) and [miyu](https://rentry.co/swirly)
 
 ![](https://files.catbox.moe/s3ol3f.png)
 
