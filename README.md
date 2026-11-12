@@ -21,7 +21,10 @@ c+h freely unless i am on a 'dni' status𓈒
 <div align="center">
 
 VIEW MY SPOKE EDIT
-also flashwarning
+
+also flash warning
+
+it can be eye-straining..
 
 https://github.com/user-attachments/assets/ea503f23-5d84-4238-9a50-4f8c0eb4b5b0
 
