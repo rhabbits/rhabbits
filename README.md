@@ -1,5 +1,5 @@
 <div align="center">
-hey if you're associated, or have interacted with this dioda. (@iamptrix) please
+hey if you're associated, or have interacted with this dioda. (@lamptrix) please
  
 be aware that he's a horrible being, having abused my friend for 2 years.
 <div align="center">
@@ -7,7 +7,7 @@ be aware that he's a horrible being, having abused my friend for 2 years.
 <div align="center">
 let's not forget the bluudud person.. i'm pretty sure this is the same guy 
 
-iamptrix cheated on my friend with. how are u gonna willingly date an abuser?
+lamptrix cheated on my friend with. how are u gonna willingly date an abuser?
 <div align="center">
  
 <div align="center">
