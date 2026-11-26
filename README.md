@@ -5,9 +5,15 @@ be aware that he's a horrible being, having abused my friend for 2 years.
 <div align="center">
  
 <div align="center">
-let's not forget the bluudud person.. i'm pretty sure this is the same guy 
-
-lamptrix cheated on my friend with. how are u gonna willingly date an abuser?
+if you still support, or side with him. even after knowing what he did,
+ 
+block me and do not interact. siding with an abuser is disgusting behavior.
+<div align="center">
+ 
+<div align="center">
+do not forget the bluudud person, i'm pretty sure they're the same person
+ 
+that lamptrix cheated on my friend with. willingly dating an abuser.
 <div align="center">
  
 <div align="center">
