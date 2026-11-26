@@ -1,5 +1,24 @@
 <div align="center">
 
+hey so if you are associated or have
+interacted with this guy (@iamptrix),
+
+keep in mind, he's a horrible person
+who abused my bff. disgusting behavior 
+gbye
+
+also don't interact with me if u still fw him
+
+<div align="center">
+ 
+<div align="center">
+ 
+![](https://i.postimg.cc/rwkwLxJF/Screenshot-2026-11-26-8-45-08-AM.png)
+
+<div align="center">
+
+<div align="center">
+
 [atabook](https://emh.atabook.org/)⠀⠀⠀[rentry](https://rentry.co/continues)⠀⠀
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Frhabbits&label=%E2%A0%80%E2%99%A1%E2%91%85%E2%A0%80&labelColor=%23ffffff&countColor=%23555555&style=plastic)
  
