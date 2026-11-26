@@ -1,14 +1,13 @@
 <div align="center">
+hey if you're associated, or have interacted with this dioda. (@iamptrix) please
+ 
+be aware that he's a horrible being, having abused my friend for 2 years.
+<div align="center">
+ 
+<div align="center">
+let's not forget the bluudud person.. i'm pretty sure this is the same guy 
 
-hey so if you are associated or have
-interacted with this guy, the dioda aka (@iamptrix),
-
-keep in mind, he's a horrible person
-who abused my bff. disgusting behavior 
-gbye also
-
-don't interact with me if u still fw him after seeing this... 
-
+iamptrix cheated on my friend with. how are u gonna willingly date an abuser?
 <div align="center">
  
 <div align="center">
