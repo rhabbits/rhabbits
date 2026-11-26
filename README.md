@@ -7,7 +7,7 @@ keep in mind, he's a horrible person
 who abused my bff. disgusting behavior 
 gbye
 
-also don't interact with me if u still fw him
+also don't interact with me if u still fw him after seeing dis
 
 <div align="center">
  
