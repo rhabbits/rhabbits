@@ -1,13 +1,13 @@
 <div align="center">
 
 hey so if you are associated or have
-interacted with this guy (@iamptrix),
+interacted with this guy, the dioda aka (@iamptrix),
 
 keep in mind, he's a horrible person
 who abused my bff. disgusting behavior 
-gbye
+gbye also
 
-also don't interact with me if u still fw him after seeing dis
+don't interact with me if u still fw him after seeing this... 
 
 <div align="center">
  
